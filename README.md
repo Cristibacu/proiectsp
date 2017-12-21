@@ -1,1 +1,2 @@
 # proiectsp
+Bâcu Andrei-Cristian
